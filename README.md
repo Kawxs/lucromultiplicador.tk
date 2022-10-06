@@ -1,1 +1,0 @@
-# lucromultiplicador.tk
